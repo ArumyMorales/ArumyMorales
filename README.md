@@ -1,0 +1,2 @@
+- 👋 Hola, soy @ArumyMorales
+- 👀 Estoy interesada en aprender mas sobre programación.
